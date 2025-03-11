@@ -17,7 +17,7 @@ The **Pump.fun Smart Contract forking** is an innovative platform  designed to a
 
 ## Contact Info
 
-#### Telegram: [ethualtera](https://t.me/ethualtera)
+#### Telegram: [ilertha](https://t.me/ilertha)
 
 ## Tip
 
